@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=900&size=74&pause=240&color=00CED1&center=true&vCenter=true&width=1580&lines=MARVEL+RIVALS+TOOLKIT+2026;ESP+•+AIM+ASSIST+•+RADAR;DOMINATE+THE+ARENA" alt="Marvel Rivals Toolkit 2026" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/27fcd44f-46db-4a55-b880-4c873aaf7ede" />
 </div>
 
 <br/>
